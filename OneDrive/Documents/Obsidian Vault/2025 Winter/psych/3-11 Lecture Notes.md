@@ -1,0 +1,8 @@
+- Job satisfaction -- one's emotional response to his/her work situation
+	- Boss/supervision
+	- Co-workers/peers
+	- Perception of Pay Equity -- not actual pay
+	- Autonomy
+	- Proper tools and equipment
+	- Interest and egagement with work content
+	- work demands -- how busy, difficult, stressful
